@@ -1,9 +1,8 @@
 # Demo
 
 some of the discription
-mgdfhf  vro djaf
-(challa punugu)
-(poora hooka)(nothing)
-(namasthe mastaru)
-(chetha na kodaka)
+aree rey manasa 
+idantha nijama aaa 
+ikapai maname 
+sagamu sagama aaaaaaa
 
